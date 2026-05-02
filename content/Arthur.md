@@ -2,6 +2,7 @@
 aliases:
   - Liu Hong
   - Liu
+draft: true
 ---
 **Arthur**, nascido **Liu Hong** ([[Akiton]], [[A Fenda|294 d.F.]]), é um dos membros a bordo da [[BD514]] e ex-membro da [[Família Ichihara-Hong]]. Arthur sumiu do mapa após atentar contra a vida do seu pai e principal líder da [[Liga Dourada]] em [[Akiton]]. 
 
