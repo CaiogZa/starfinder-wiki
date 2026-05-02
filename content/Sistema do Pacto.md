@@ -1,0 +1,1 @@
+O Sistema do Pacto é um sistema solar. Seu nome se dá a um acordo entre as [[Federações Galácticas]] que o compõe.

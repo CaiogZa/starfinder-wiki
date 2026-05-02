@@ -1,0 +1,1 @@
+Kinaash Veil, é o mecânico e atual locador da BD514. Há 7 anos se autoexilou 

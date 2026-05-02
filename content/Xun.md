@@ -1,0 +1,1 @@
+Assassinos de elite da [[Liga Dourada]] que usam modificações corporais.
