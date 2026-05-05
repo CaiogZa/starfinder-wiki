@@ -1,1 +1,4 @@
+---
+draft: true
+---
 [[Xun]] da [[Família Ichihara-Hong]] e melhor amigo de [[Arthur]].
