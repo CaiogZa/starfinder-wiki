@@ -1,1 +1,1 @@
-Kinaash Veil, é o mecânico e atual locador da BD514. Há 7 anos se autoexilou 
+Kinaash Veil, é o mecânico e atual locador da BD514. Há 7 anos se decidiu sair da sua terra natal, o [[Mandato do Fogo]]. Após perambular pelo sistema encontrou [[Orven Ratchet]], que se tornou seu mentor.
